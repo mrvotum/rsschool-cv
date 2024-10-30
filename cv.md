@@ -1,0 +1,1 @@
+# rsschool-cv task by Vladimir
